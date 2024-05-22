@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ElderVoid
-- 👀 I’m interested in ONE PIECE,Blox Fruits & horror movies 
+- 👀 I’m interested in ONE PIECE, Blox Fruits & horror movies 
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
